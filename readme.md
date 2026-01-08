@@ -1,0 +1,1 @@
+https://theweeklychallenge.org/challenges/
